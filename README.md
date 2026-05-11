@@ -2,4 +2,5 @@
 A la velocidad del Rayo, al tiempo del Suspiro, a la potencia del Bing Bang. Llega Flash... 
  -Flash Gordon.
 
-### -Me las pagaras Maldito Mint
+### -!Me las pagaraaas... 
+### Maldito Mint!
